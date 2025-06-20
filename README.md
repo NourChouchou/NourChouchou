@@ -17,7 +17,6 @@
 
 ## 🧠 Fun Facts:
 - I enjoy learning new things every day 🌱  
-- I run a small business called **Chic & Click** 💍📱  
 - I dream of building my own clothing and sticker brands 🖤💫  
 
 Let's connect and grow together! 💖  
